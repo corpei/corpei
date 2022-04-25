@@ -1,0 +1,3 @@
+- 👋 Somos @corpei
+- 👀 Agencia privada de promocion de exportaciones e inversiones en Ecuador
+- 💞️ Proyectos de Cooperacion
